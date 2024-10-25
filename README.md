@@ -59,3 +59,4 @@
 | ![](https://avatars.steamstatic.com/77ddbed85c28ccf205a3cc389a728f7d6c871a7c.jpg) | 水枪装尿滋谁谁叫          | [76561199207054239](https://steamcommunity.com/profiles/76561199207054239/) | ✅           | 2022-07-15 17:17:20 |          |
 | ![](https://avatars.steamstatic.com/9ab854c23ad39c58c4a0dcb78a9104a2cd9691d4.jpg) | 花枫ღ               | [76561199392727218](https://steamcommunity.com/profiles/76561199392727218/) | ✅           | 2023-12-01 11:37:29 |          |
 | ![](https://avatars.steamstatic.com/148ff422f2245ab66abfeabf3f7506861d6b703b.jpg) | 平平无奇路人黑           | [76561199707730513](https://steamcommunity.com/profiles/76561199707730513/) | ✅           | 2024-09-13 00:49:22 |          |
+| ![](https://avatars.steamstatic.com/60297bf42b211996ab7101f4153472913706e560.jpg) | 奇怪的妙蛙种子           | [76561198174107786](https://steamcommunity.com/profiles/76561198174107786/) | ✅           | 2024-10-24 12:23:47 |          |
